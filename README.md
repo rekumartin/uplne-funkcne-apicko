@@ -1,0 +1,1 @@
+# uplne-funkcne-apicko
